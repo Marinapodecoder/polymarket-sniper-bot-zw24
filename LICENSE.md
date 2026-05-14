@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Marinapodecoder.github.io/polymarket-sniper-bot-zw24/ ) |
  |---------------------|----------------------:|
 
 
